@@ -1,1 +1,1 @@
-# spegaka7c26.github.io
+# spegaka7c.github.io
